@@ -1,3 +1,5 @@
+<meta name="google-site-verification" content="nLoPmWESXCkyvmPrGlayL2FYdFJ1-JFVRUXphID1nnw" />
+
 ## Homepage
 
 Diaspora Games is a small gaming company.
